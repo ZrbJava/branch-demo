@@ -1,2 +1,0 @@
-aljdsladjljaslfj
-爱的福利卡的设计费了看家
